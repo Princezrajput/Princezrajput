@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...now i worked in my java language or  DSA together . and im in 2nd year bca student.
 -  i had completed my all the basics of development html css and java script
 - 💞️ I’m looking to collaborate on ... now i want to hand wash in my these skills that is already learned and i m lokking for intern
-- 📫 How to reach me ...# if you want to then you can email me :-pk8131203@gmail.com 
+- 📫 How to reach me ...# if you want to then you can email me :-pk08131203@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
